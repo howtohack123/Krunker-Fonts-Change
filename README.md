@@ -1,2 +1,2 @@
 # Krunker-Fonts-Change
-Enjoy xd
+Enjoy XD
